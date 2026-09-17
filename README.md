@@ -2,3 +2,4 @@
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/ea1b331a17ac2392b2b6427ed970106e43d05656/122627531.jpeg)
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/f1101ff4bcc1f22ac12d6e6f0675bef62be86962/f12f8cbc-527c-4b49-90a3-68065745d159.jpeg)
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/b8460fb84f6fd5373755857dad23ff2de60b8ee1/9803a62c-2618-43fc-bfd2-bc8954f0ca03.webp)
+![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/6d154055f9cd710a0eeda08852985565b05bf891/%E0%B8%9E%E0%B8%B7%E0%B8%8A.png)
