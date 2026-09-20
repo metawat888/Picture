@@ -8,3 +8,4 @@
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/main/Logo%20Ai%20Lab%20ใช้จริง.png?raw=true)
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/main/logo%20จริง%202.png?raw=true)
 ![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/main/2.png?raw=true)
+![รูปภาพของฉัน](https://github.com/metawat888/Picture/blob/main/3.png?raw=true)
